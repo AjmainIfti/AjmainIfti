@@ -4,7 +4,7 @@
 ## 💫 About Me:
 <img align="right" height="150" src="https://media1.tenor.com/m/pRdbgLv3TJEAAAAC/un-abrazo-risa.gif"  />
 
-- 💬 Reach out if you wanna know about : **Coding, Competitive Programming, Study hacks, PCs, Phones and of course Food!**
+- 💬 Reach out if you wanna know about : **Coding, Competitive Programming, Study hacks and of course Food!**
 
 - 📫 How to reach me: **ajmainifti.05@gmail.com**
 
